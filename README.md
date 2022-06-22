@@ -1,1 +1,0 @@
-# rec-pedia.github.io
